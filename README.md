@@ -1,5 +1,3 @@
-| | |
-|---|---|
 | Algemene Plaatselijke Verordening (APV)      | Fusion Roleplay |
 
 ## Algemene Bepalingen
