@@ -1,5 +1,4 @@
-## Algemene Plaatselijke Verordening Fusion RolePlay
-------
+# Algemene Plaatselijke Verordening Fusion RolePlay
 
 
 ## Algemene Bepalingen
