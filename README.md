@@ -1,5 +1,5 @@
 # Algemene Plaatselijke Verordening (APV) Fusion RolePlay
--# Fusion Roleplay 2025
+Powered by Vibegames
 
 ## Algemene Bepalingen
 
