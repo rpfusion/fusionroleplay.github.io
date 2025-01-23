@@ -1,5 +1,6 @@
-# Algemene Plaatselijke Verordening (APV) Fusion RolePlay
-Powered by Vibegames
+# Algemene Plaatselijke Verordening Tedeapolis
+
+
 
 ## Algemene Bepalingen
 
